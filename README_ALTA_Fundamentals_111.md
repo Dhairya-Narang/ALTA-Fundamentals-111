@@ -177,10 +177,10 @@ ALTA-Fundamentals-111/
 ## 🔗 Important Links
 
 **GitHub Repository:**
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+(https://github.com/Dhairya-Narang/ALTA-Fundamentals-111)
 
 **LinkedIn Profile:**
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+(https://www.linkedin.com/in/dhairyanarang/)
 
 ## 📅 Daily Routine
 

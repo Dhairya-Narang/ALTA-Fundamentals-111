@@ -194,7 +194,7 @@ For each day, I aim to:
 
 ## 🔥 Current Progress
 
-**Day 36/111 ✅**
+**Day 37/111 ✅**
 
 The journey has just started --- **108 days to go!**
 
